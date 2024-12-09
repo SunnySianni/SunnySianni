@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something fun
 - 📫 How to reach me sstri0041@launchpadphilly.org or https://www.linkedin.com/in/sianni-strickland-934059284/
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: My favorite TV series are Avatar: The Last Airbender, The Hunger Games, and Strong Girl Bong Soon
+- ⚡ Fun fact: My favorite TV series are Avatar: The Last Airbender, The Hunger Games, The 100, Agents of Shield, and Strong Girl Bong-Soon
 
 <!---
 
